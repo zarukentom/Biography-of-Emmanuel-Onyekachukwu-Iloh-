@@ -34,3 +34,5 @@ Character and Vision
 Emmanuel is widely described as a hard-working and purposeful individual. His life reflects a blend of intellectual pursuit, spiritual commitment, and cultural heritage. As a young Nigerian emerging from a respected family background, he represents a generation striving to combine tradition with digital advancement and faith-driven service.
 
 Emmanuel Onyekachukwu Iloh stands as a young Nigerian analyst, writer, and missionary whose life bridges heritage, education, digital innovation, and spiritual dedication.
+
+https://goacommunityservices.com/biography-of-emmanuel-onyekachukwu-iloh
