@@ -1,7 +1,7 @@
 # Biography-of-Emmanuel-Onyekachukwu-Iloh-
 
 Biography of Emmanuel Onyekachukwu Iloh
-Emmanuel Onyekachukwu Iloh is a Nigerian analyst, writer, educator, and missionary known for his involvement in the GOA CS-VM Digital Nation initiative and the God of Armies Prayer Community International.
+Emmanuel Onyekachukwu Iloh is a Nigerian analyst, writer, educator, and missionary known for his services in the GOA CS-VM Digital Ecosystem and the God of Armies Prayer Community International.
 
 Early Life and Background
 
@@ -15,7 +15,7 @@ From an early age, Emmanuel displayed a strong inclination toward learning, writ
 
 Professional and Digital Engagement
 
-Emmanuel Onyekachukwu Iloh serves as an analyst within the GOA CS-VM Digital Nation, a digital and research-oriented initiative connected with GOA Community Services. In this role, he contributes to analytical work, content development, and intellectual discourse within the platform.
+Emmanuel Onyekachukwu Iloh serves as an analyst within the GOA CS-VM Digital Ecosystem, a digital and research-oriented initiative connected with GOA Community Services. In this role, he contributes to analytical work, content development, and intellectual discourse within the platform.
 
 Beyond analysis, he is recognized as:
 
